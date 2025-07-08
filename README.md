@@ -4,3 +4,4 @@ My daily GitHub streak
 
 ## Day 1 – I’m starting my GitHub streak!
 Day 2 – I’m back again 💪
+Day 3 – 3 in a row… let’s go! 🔥
